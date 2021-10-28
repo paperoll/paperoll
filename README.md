@@ -1,0 +1,4 @@
+- I am @paperoll, I currently am a beta tester for SBH (discord.gg/8htcNKNSPe).
+- I am a slave for Mr. Krabs.
+- Add me on discord add spongebobhack user#7929 if you need to contact me.
+- I’m currently learning Java, and Rust.
